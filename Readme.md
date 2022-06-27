@@ -1,1 +1,0 @@
-#Thread Hub Vaccinale
